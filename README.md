@@ -1,5 +1,0 @@
-# Torrent-to-GDrive-Downloader
-
-https://torrentz2.eu/?__cf_chl_jschl_tk__=4428d2a17ede02b7891049592d7f3207ef6a4dfc-1592662147-0-AW5T-Sxqt6FSdH0I_74Gp4BaWdu0s0lU72M1d79SUa5dB-VywosIXy3CrUejm_xzq0XIcfKoTQ8DEtESvD8vaJsG2yyFUYd8WH-Q1ad1XQrdH-u6brkOUs7IIjg7OCvWkIp6kG-Lx0YNLXg1LgIMyqmSkN_-KmpED5tcXrBgKsxcLZZm1G6UWjFvbsS5tyNZec26P1R6y0Hyb7S1KXIZlBWmVKxthZ8Tx4O2m9Z-A_L_AtHY5PYkp6k7RlxtQye2wbZRo9_awBYfEKz_1oEiZko
-
-https://www.vpnmentor.com/blog/10-best-torrent-websites/#rarbg
